@@ -1,0 +1,2 @@
+# Tronx
+Birlikte kazanalim
